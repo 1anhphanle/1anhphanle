@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **anhphanle8818@gmail.com**
 
-- ⚡ **Dial Square 1886**
+- ⚡ **Dial Square 88 81 18**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
